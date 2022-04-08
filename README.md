@@ -1,1 +1,12 @@
-# [free](https://github.com/s9a/free)
+# [`s11y`](index.html)
+
+```
+sincronicità
+sincronicitat
+sincronicidade
+sincronicidad
+synchronicité
+synchronicité
+synchronicity
+s***********y
+```
